@@ -1,2 +1,2 @@
-# Reciclagem-e-Gest-o-de-Residuos-
+# Reciclagem-e-Gestão-de-Residuos-
 Projeto Escolar
